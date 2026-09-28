@@ -1,0 +1,2 @@
+# premium-mishima-line-001-mishima-inlay-line-carve-pot
+Tired of scattered notes, forgotten glaze recipes, and messy timelines that kill your pottery momentum? The Mishima Inlay &amp; Line Carve Pottery Craft Hub is your all-in-one command center to systematize every stage of your craft from sketch to kiln.  This Notion template eliminates the chaos of managing multiple mishima and line carve projects. It c
